@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OrangeTurtle197!
-- 👀 I’m interested in computers, coding, video games, and stuff like that (oh and turtles as well)
+- 👀 I’m interested in computers, coding, video games, and stuff like that (oh and turtles as well, can't forget that)
 - 🌱 I’m currently learning... everything you learn in middle school I guess?
 - 💞️ I’m open to collaborate on anything I'm capable of (which is honestly not much).
 - 📫 How to reach me ... yeahhhh... about that... I guess just email me at <orangeturtle197@gmail.com>?
